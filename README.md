@@ -1,4 +1,4 @@
-### Hi there 👋
+Peter was born in Maryland, raised in Southern California. He is trying to learn as much as he can about as many different topics in his time here. Ideally, he would like to speak intelligently on any subject. Peter is an Eagle Scout, and thus has been forced into appreciating nature (read as: he loves nature). He plays volleyball in his free time, as well as cooks, works out, and plays video and board games. Really he’s just all over the place.
 
 <!--
 **peternordel/peternordel** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
